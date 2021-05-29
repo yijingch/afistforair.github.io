@@ -35,3 +35,14 @@ for there's none
 no one, not a single baggage to collect   
 pick a nameless song and   
 suit yourself  
+
+
+**\* (2020.12.14)**    
+dried eyes and fading footsteps in March   
+"that's pretty easy," one said,   
+"follow the person who leads the way," the other replied   
+in a voice I shall never recognize.     
+I stared at your couch, the headlight   
+of passing vehicles   
+"who would have thought of suicide?"   
+"why the hell did my shoelaces come untied, again?"  
