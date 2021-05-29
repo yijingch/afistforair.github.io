@@ -1,5 +1,5 @@
 ---
-title: 衔尾蛇的故事
+title: How to attend a lab meeting
 date: 2021-04-02 00:00:00 +08:00
 tags: [poem]
 ---
