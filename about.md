@@ -5,7 +5,7 @@ layout: page
 comments: false
 ---
 
-Yijing is working on her new project (2022-2027). She can be reached via yijing 2022 at gmail dot com.
+c is working on her new project (2022-2027). She can be reached via tripletabs at gmail dot com.
 
 ----
 
