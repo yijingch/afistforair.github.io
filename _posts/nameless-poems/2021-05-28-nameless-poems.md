@@ -4,7 +4,7 @@ date: 2021-05-28 00:00:00 +08:00
 tags: [poem]
 ---
 
-**\* (2021.5.28)**
+**\* (2021.5.28)**  
 it's never impossible to come up with     
 plenty of reasons to forgive    
 but not to forget how it answers to a faint,   
@@ -25,7 +25,7 @@ isn’t it, exactly, our shared context?
 
 ----
 
-**\* (2021.5.11)**
+**\* (2021.5.11)**  
 when will a mute talk   
 about her cave prints   
 and toothbrushes,  
