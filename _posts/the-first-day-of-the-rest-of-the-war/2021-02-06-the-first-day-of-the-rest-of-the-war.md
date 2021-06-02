@@ -5,10 +5,10 @@ tags: [poem]
 ---
 
 
-> For he needs something or will forever remain a dwarf,
-Though a perfect one, and possessing a normal-sized brain
-But he has got to be released by giants from things.
-And as the plant grows older it realizes it will never be a tree.
+> For he needs something or will forever remain a dwarf,  
+Though a perfect one, and possessing a normal-sized brain  
+But he has got to be released by giants from things.  
+And as the plant grows older it realizes it will never be a tree.  
 (John Ashbery)
 
 **1:12 AM**  
