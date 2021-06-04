@@ -23,7 +23,6 @@ isn’t it, exactly, our shared context?
 
 (and there's no such thing as a shared context)  
 
-----
 
 **\* (2021.5.11)**  
 when will a mute talk   
@@ -46,3 +45,14 @@ I stared at your couch, the headlight
 of passing vehicles   
 "who would have thought of suicide?"   
 "why the hell did my shoelaces come untied, again?"  
+
+
+**\* (2020.10.19)**  
+我什么也没有失去的  
+一个秋天下午  
+河边的小孩  
+踩着碎石  
+请您，听完这一首后  
+砸烂我的手指  
+人类，也是秃鹫  
+也继承死亡  
