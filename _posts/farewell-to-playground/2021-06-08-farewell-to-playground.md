@@ -1,8 +1,13 @@
 ---
 title: Nameless poems
-date: 2021-05-28 00:00:00 +08:00
+date: 2021-06-08 00:00:00 +08:00
 tags: [poem]
 ---
+
+**\* (2021.6.8)**
+
+After I left the courtroom, I thought about those unfinished stories a lot. Reheated plates; long walks that she didn't get a chance to take; those mornings as well. I thought about the empty living room as if I were absent. As if we had been slowly erased one by one (what a relief!) without any knowledge of where and how this should possibly end. Only the audience can mercifully comment—a voice that cannot be unheard—sure, if this is not the closing scene, I can't think of any.
+
 
 **\* (2021.5.28)**  
 it's never impossible to come up with     
