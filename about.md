@@ -5,19 +5,19 @@ layout: page
 comments: false
 ---
 
-c is working on her new project (2021-2027).   
-She can be reached via tripletabs at gmail dot com.  
+<p style="text-align: center;">c is working on her new project (2021-2027).<br>
+She can be reached via tripletabs at gmail dot com.</p>
 
 ----
 
-may our words become the clouds  
-of our statues  
-each with an identical face, pronounced eyebrows   
-that barely smiled, the very opposite of  
-rejoicing, after all,  
-is the relief  
-from a morning burial.   
-and I never hear back from you since.    
-here comes the new summer.   
+<p style="text-align: center;">may our words become the clouds<br>
+of our statues<br>
+each with an identical face, pronounced eyebrows<br>
+that barely smiled, the very opposite of<br>
+rejoicing, after all,<br>
+is the relief<br>
+from a morning burial.<br>
+and I never hear back from you since.<br>
+here comes the new summer.</p>
 
-(2021.4.5)
+<p style="text-align: center;">(2021.4.5)</p>
