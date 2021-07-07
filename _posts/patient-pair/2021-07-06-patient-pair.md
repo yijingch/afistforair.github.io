@@ -7,7 +7,7 @@ tags: [poem]
 
 They shared a cell for a while.  
 Made small talks.   
-Swallowed the same packs of pills.  
+Swallowed the same pack of pills.  
 Heard halted sighs and replied with another.  
 Played with relapses.
 Checked-in with doctors weekly.     
