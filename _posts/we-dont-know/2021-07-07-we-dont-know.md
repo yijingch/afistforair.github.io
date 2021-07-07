@@ -7,7 +7,7 @@ tags: [poem]
 Mom just went into shock in front of me, before which   
 I was urging her out.   
 I need to be alone I said.   
-She leaned against the wall, slowly   
+She rubbed against the wall, slowly   
 made her way to the door,  slowly   
 leaned backward, and slowly   
 collapsed on the floor.   
@@ -18,7 +18,7 @@ Mom just went into shock and is lying in my room.
 He was a little confused.   
 Huh?   
 Immediately got out of bed.   
-came over and tapped her shoulder.    
+Came over and tapped her shoulder.    
 Called out her name.    
 Mom woke up.   
 Why was I lying here?    
