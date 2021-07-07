@@ -46,7 +46,7 @@ and I never hear back from you since.
 here comes the new summer.  
 
 
-**Defining features (2021.4.2)**
+**How to attend a lab meeting (2021.4.2)**
 
 "let's have a carb party"  
 and you brought chips (no dipping sauce whatsoever)   
