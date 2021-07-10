@@ -12,4 +12,4 @@ Called out her name.
 Mom woke up.   
 Why was I lying here?    
 
-Then with a painful expression, she recalled what had happened. Dad walked her back to their room.   
+With a painful expression, she recalled what had happened. Dad walked her back to their room.   
