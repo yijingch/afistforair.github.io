@@ -5,19 +5,10 @@ layout: page
 comments: false
 ---
 
-<p style="text-align: center;">c is working on her new project (2021-2027).<br>
-She can be reached via tripletabs at gmail dot com.</p>
+c sliced herself into pieces at the age of 17 and deposited them at a secret blimp, which, unfortunately, went bankrupt later. Her fragments exploded everywhere and were tossed around by strangers, friends, and herself in pure ecstasy. She uses this site as a temporary journal page as she slowly collects her pieces.
 
-----
+Lessons:  
+- Do not slice yourself for fun;
+- if you have to, do not deposit them at one place.
 
-<p style="text-align: center;">May our words become the clouds<br>
-Of our statues<br>
-Each with an identical face, pronounced eyebrows<br>
-That barely smiled, the very opposite of<br>
-Rejoicing, after all,<br>
-Is the relief<br>
-From a morning burial.<br>
-And I never hear back from you since.<br>
-Here comes the new summer.</p>
-
-<p style="text-align: center;">(2021.4.5)</p>
+She can be reached via tripletabs at gmail dot com.
