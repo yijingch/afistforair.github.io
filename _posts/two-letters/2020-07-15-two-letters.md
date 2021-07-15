@@ -1,0 +1,21 @@
+---
+title: Two letters
+date: 2021-07-15 17:45:00 +08:00
+tags: [letter]
+---
+
+my dearest friend,
+
+that all lives are short, and that we are insignificantly in love with someone at some point, marked the interval between our blessings and struggles.
+
+c  
+2020.3.5
+
+----
+
+my dearest friend,
+
+see, it's just effortless for us to use an established language and to reproduce existing sets of vocabs, tones, grammars, etc; the tricky part is to detach from these things and to speak subversively; to create new contexts by breaking free from the rules of other narratives, even great, fascinating ones; to rebel against your presumable core and to keep writing until you have nothing else to confess or to defend; to remind me of your insignificant beings; or to live, if necessary; poems are disposable; what are us; and what makes our minds; words; feces; is our lives nothing but a sneezing impulze that takes too long to hold our breaths; regardless, be fierce and generous; I've been waiting.
+
+c  
+2021.7.15
