@@ -14,8 +14,8 @@ Lines burst in out of design.
 I just like to talk about him in the present tense.”  
 Where were us? Still in these recurring evenings of outage?  
 There. In complete darkness, they   
-leaned against the wall and  
-inched down an unknown route, canned   
+lean against the wall and  
+inch down an unknown route, canned   
 in intermittent whispers like a dusking pond being lit up,
 flaringly,    
 by the moon, patches    
