@@ -13,11 +13,12 @@ Lines burst in out of design.
 “I know he’s dead.  
 I just like to talk about him in the present tense.”  
 Where were us? Still in these recurring evenings of outage?  
-Where, in complete darkness, they leaned  
+There. In complete darkness, they leaned  
 against the wall and  
 inched down an unknown route,  
 canned in intermittent whispers like a dusking pond  
-lit up by the moon, patches by patches    
-—as in my dream,  
+lit up, flaringly,
+by the moon, patches
+by patches—-as in my dream,  
 their eyes wide open, until   
 there’s nothing else to be seen.   
