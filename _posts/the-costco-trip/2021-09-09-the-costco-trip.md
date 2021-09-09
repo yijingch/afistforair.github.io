@@ -19,6 +19,6 @@ inched down an unknown route,
 canned in intermittent whispers like a dusking pond    
 lit up, flaringly,    
 by the moon, patches    
-by patches—-as in my dream,    
+by patches—as in my dream,    
 their eyes wide open, until     
 there’s nothing else to be seen.   
