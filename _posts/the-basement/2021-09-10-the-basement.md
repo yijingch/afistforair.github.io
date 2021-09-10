@@ -13,6 +13,6 @@ tags: [poem]
 A friend asked: what do you mean by “fragmented”, since  
 when,  
 or has the letter arrived,  
-I replied that I could leave at any time, as if, you know  
+I replied that I could leave at any time. As if, you know  
 being a patch, but fragmented—  
 hence an undercover author now.  
