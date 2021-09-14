@@ -23,7 +23,7 @@ author:
 url: "https://afistforair.com" #
 baseurl:
 permalink: /:title/
-google_analytics: # leave it blank if not wish
+google_analytics: UA-207532157-1
 fb_appid:
 
 # Collection setting
