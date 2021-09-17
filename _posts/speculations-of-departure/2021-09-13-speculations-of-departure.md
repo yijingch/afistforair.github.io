@@ -1,5 +1,5 @@
 ---
-title: Speculations of Departure
+title: Speculations of departure
 date: 2021-09-13 21:39:00 +08:00
 tags: [letter]
 ---

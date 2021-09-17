@@ -1,10 +1,10 @@
 ---
-title: The Costco Trip
+title: The Costco trip
 date: 2021-09-09 10:26:00 +08:00
 tags: [poem]
 ---
 
-The cashier then slid the box of icecream bar   
+The cashier then slid the box of icecream bar  
 toward us. An inexplicably smooth,  
 silent slide.  
 We returned home merrily and  
@@ -13,12 +13,12 @@ Lines burst in out of design.
 “I know he’s dead.  
 I just like to talk about him in the present tense.”  
 Where were us? Still in these recurring evenings of outage?  
-There. In complete darkness, they   
+There. In complete darkness, they  
 lean against the wall and  
-inch down an unknown route, canned   
+inch down an unknown route, canned  
 in intermittent whispers like a dusking pond being lit up,
-flaringly,    
-by the moon, patches    
-by patches--as in my dream,    
-their eyes wide open, until     
-there’s nothing else to be seen.   
+flaringly,  
+by the moon, patches  
+by patches--as in my dream,  
+their eyes wide open, until  
+there’s nothing else to be seen.  
