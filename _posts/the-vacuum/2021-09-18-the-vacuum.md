@@ -22,7 +22,7 @@ tags: [poem]
 报复着束手无策的人。  
 这时我却要看看父亲的眼泪，看他如何感到悲伤  
 继而忠厚地撤退，作为归还，  
-一次行军。  
+或一次行军。  
 
 ----
 
@@ -46,4 +46,4 @@ More conceivable than afternoons for those in love, despite of which
 the helpless is being revenged.  
 Now I want to see my father’s tears, to see how he grieves,  
 and courteously retreats, as a return,  
-as a marching.   
+or as a marching.   
