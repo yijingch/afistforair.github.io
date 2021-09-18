@@ -8,7 +8,7 @@ tags: [poem]
 让我们安静。我也看不到谁的  
 彼此之间的填充物，  
 一种泡泡，  
-我是说任意媒介（如果还有人愿意相信永恒漂亮的参照物比如书签  
+我是说任意媒介（如果还有人愿意相信持久漂亮的参照物比如书签  
 比如落款的字体，  
 比如此致——  
 您的  
@@ -32,7 +32,7 @@ Late at night we rushed home. Strangeness
 sit us in serenity. Neither could I see these fillings of whom,  
 in between,  
 a class of bubbles,  
-I’m talking about the time when, whatever medium (if anyone still trusts a   glamorous reference that lasts long, e.g., a bookmark,  
+I’m talking about the time when, whatever medium (if anyone still trusts a glamorous reference that lasts long, e.g., a bookmark,  
 e.g., the font to inscribe,  
 e.g., Regards—  
 Yours,  
