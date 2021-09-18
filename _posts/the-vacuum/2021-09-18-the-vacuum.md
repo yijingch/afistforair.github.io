@@ -29,7 +29,7 @@ tags: [poem]
 **The vacuum**
 
 Late at night we rushed home. Strangeness  
-sit us in serenity. Neither could I see these fillings of whom,  
+sat us in serenity. Neither could I see these fillings of whom,  
 in between,  
 a class of bubbles,  
 I’m talking about the time when, whatever medium (if anyone still trusts a glamorous reference that lasts long, e.g., a bookmark,  
