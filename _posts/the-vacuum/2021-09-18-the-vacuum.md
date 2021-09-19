@@ -40,7 +40,7 @@ For good and all)
 went missing. I agree with you that silence is a greater  
 donation, more endearing, far more just than arguments.  
 
-(omitting hypothesis)  
+(omitting hypotheses)  
 
 More conceivable than afternoons for those in love, despite of which  
 the helpless is being revenged.  
