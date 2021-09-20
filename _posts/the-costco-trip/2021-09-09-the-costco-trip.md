@@ -16,8 +16,8 @@ Where were us? Still in these recurring evenings of outage?
 There. In complete darkness, they  
 lean against the wall and  
 inch down an unknown route, canned  
-in intermittent whispers like a dusking pond being lit up,
-flaringly,  
+in intermittent whispers like a dusking pond being lit up,  
+flaringly,    
 by the moon, patches  
 by patches--as in my dream,  
 their eyes wide open, until  
