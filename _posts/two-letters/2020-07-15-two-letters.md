@@ -1,5 +1,5 @@
 ---
-title: Two letters
+title: Letters
 date: 2021-07-15 17:45:00 +08:00
 tags: [letter]
 ---
@@ -19,3 +19,13 @@ see, it's effortless for us to mimic an established language and to reproduce ex
 
 c  
 2021.7.15
+
+
+----
+
+dear friend,
+
+I disagree that sorrow literalizes us. On the contrary, sorrow consumes us, the same way we consume sorrow, sometimes of our own but regrettably, more of others. Sorrow arrests the free-willed in disguise of redemption, and it is for this reason that I stopped admiring things or remembering her, that I don’t think I’m kind or evil enough, nor will I ever be. Indifference, for better or worse, is all I’m left with.
+
+c
+2021.9.19
