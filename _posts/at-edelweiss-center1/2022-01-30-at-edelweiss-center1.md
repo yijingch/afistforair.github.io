@@ -5,10 +5,6 @@ tags: [diary]
 ---
 
 
-> <p style="text-align: left;">...The really important kind of freedom involves attention and awareness and discipline, and being able truly to care about other people and to sacrifice for them over and over in myriad petty, unsexy ways every day. That is real freedom. That is being educated, and understanding how to think. The alternative is unconsciousness, the default setting, the rat race, the constant gnawing sense of having had, and lost, some infinite thing.</p>
->   
-> — David Foster Wallace, “this is water”
-
 I had not developed any concrete thought on why I felt nauseous while reading 2666 last summer, but it’s been a ticking bomb somewhere. I was shoveled back to this question once again when I received a pre-order of Mörderische Huren this week. For 2666, the whole book was incrementally unbearable at best; it was the femicide chapter (i.e., the part about the crimes), dispassionately narrated in a pseudo-journalistic style to present an apocalyptic arena of evil layer after layer, that I found extremely disturbing—not because of the topic, but the level of disintegration by writing (and consequently reading) we might be able to attain, especially without much effort from the reader’s end. As a loafing reader I was for sure not looking for ease and comfort in literature or art in general, but the fundamental attestation of being an instinctively_aware_ narrator versus being a too wide-eyed exerting one, I think (with prejudice of course), lies in the way they manage to (im)purify whatever partitioned reality they would propose in their work. Similar to Benjamin’s “knowledge is ascertainable through questioning, but truth is not”, I think morality is ascertainable through rhetoric architecting, true innocence is not.
 
 
