@@ -13,4 +13,4 @@ That afternoon I rushed home in perplexity. It was exhilarating but terrifying t
 
 Thanks to the movie I did not feel as stressed as before when revisiting some bouldering routes at Blockfabrik this Friday night, maybe even a bit distracted by the soundtrack I listened to while climbing. Through every evening all find their own portal to infinity, indeed. With partial concentration on the present, I finished two new routes (!!), made some progress in an old one, and started to recognize the importance of (and very very slowly, to take advantage of) proper/smart body positioning, for which I celebrated at Shokudo Kuichimbo with an Unadon (a little too sweet but overall up to my expectation).
 
-[1]:	https://www.etymonline.com/word/requite#:~:text=c.,Related%3A%20Requited%3B%20requiting.
+[1]:	https://www.jstor.org/stable/26380013
