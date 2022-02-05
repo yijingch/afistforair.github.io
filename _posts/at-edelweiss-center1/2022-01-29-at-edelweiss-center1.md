@@ -1,5 +1,5 @@
 ---
-title: at Edelweiss-Center (1)
+title: At Edelweiss-Center (1)
 date: 2022-01-29 12:01:00 +01:00
 tags: [diary]
 ---
