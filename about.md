@@ -5,4 +5,9 @@ layout: page
 comments: false
 ---
 
-As an undercover author she is learning to be present at the scene and to be absent from readers. Her fragments exploded everywhere and were tossed around by strangers, friends, and herself in pure ecstasy. She archives her random notes here as she wonders, if a clock is to doomed be murdered, or if our past should therefore disappear; otherwise how can we not remember each other?
+my dearest friend,  
+
+see, it’s effortless for us to mimic an established language and to reproduce existing sets of vocabs, tones, grammars, etc; the tricky part is to detach from these things and to speak subversively; to create new contexts by breaking free from the rules of other narratives, even great, fascinating ones; to rebel against your presumable core and to keep writing until you have nothing else to confess or to defend; to remind me of your insignificant beings; or to live, if necessary; poems are disposable; what are us; and what makes our minds; words; feces; are our lives nothing but a sneezing impulse that takes too long to hold our breaths; regardless, be fierce and generous; I’ve been waiting.  
+
+c  
+2021.7.15
