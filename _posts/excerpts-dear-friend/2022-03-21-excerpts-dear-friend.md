@@ -20,7 +20,7 @@ March tokenized several important events. The birth of a friend, the death of an
 
 > <p style="text-align: left;">One has to have a solid self to be selfish.</p>
 
-> <p style="text-align: left;">What a long way it is from one life to another, yet why write if not for that distance, if things can be left go, every before replaced by an after.</p>
+> <p style="text-align: left;">What a long way it is from one life to another, yet why write if not for that distance, if things can be let go, every before replaced by an after.</p>
 
 <!-- > <p style="text-align: left;">One always knows how best to sabotage one's own life.</p> -->
 
