@@ -58,7 +58,7 @@ March tokenized several important events. The birth of a friend, the death of an
 
 > <p style="text-align: left;">...willfully selfish.</p>
 
-> <p style="text-align: left;">"The moment one is sad one is ordinaty." She wrote. But that is not enough. The moment one feels anything one feels fatal.</p>
+> <p style="text-align: left;">"The moment one is sad one is ordinary." She wrote. But that is not enough. The moment one feels anything one feels fatal.</p>
 
 > <p style="text-align: left;">Writing is an option, so ist not writing; being read is a possibility, so ist not being read. Reading, however, I equate with real life: life can be opened and closed like a book; living is a choice, so is not living.</p>
 
