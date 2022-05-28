@@ -18,5 +18,5 @@ Greg and I won three rounds of cribbage in a row and I was too proud to not let 
 
 A thunderstorm was right above us on our way back home this afternoon. Around 1pm it was dark as midnight but the rain was, even I didn’t intend to notice, too brief and forgiving.
 
-c
+c  
 2021.9.13
