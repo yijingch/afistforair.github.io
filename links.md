@@ -6,5 +6,6 @@ comments: True
 ---
 
 
-Neighbors and friends:
-- A Clean, Well-Lighted Place - Scarlet [\[link\]](https://scarletzhuang.github.io/)
+## Neighbors and friends
+
+- Scarlet: A Clean, Well-Lighted Place [\[link\]](https://scarletzhuang.github.io/)
