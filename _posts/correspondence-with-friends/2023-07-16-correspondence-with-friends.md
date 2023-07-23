@@ -1,5 +1,5 @@
 ---
-title: Correspondence with Friends: a 1000-day digest
+title: Correspondence with Friends, a 1000-day digest
 date: 2023-05-18 19:24:00 +02:00
 tags: [letter]
 ---
