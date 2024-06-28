@@ -23,3 +23,23 @@ tags: [poem]
 不明白结束是什么，恰恰因此它区别于文学和所有的友谊。   
 它是我的宝贝。我的空心玩具，即将降生是为了   
 永不消失  
+
+**Problemset**
+
+Now I’m ready to describe them. First,  
+each vacancy they create comes with a slight tweak, letting those astigmatic eyes  
+look straight into me, but not easily  
+compensate me. Second, they refuse to carry their palms.  
+In the void of man’s heart they  
+shrink. Like fungus. They climb,  
+then I speak: do not climb. They fade,  
+then I walk. So let’s be honest,  
+I never cared about literature but my life  
+is different. In my life I dare to search a pattern—  
+scale-free, i.e., it can repeat itself  
+endlessly, my brilliant friend according to the length of edge and the law of reproduction please  
+find:  
+fractal dimension. My brilliant friend however does not  
+understand what an end means; and it’s exactly why they differ from literature and all my friendship.  
+My precious. My toy of void. To be born is  
+to never disappear.  
