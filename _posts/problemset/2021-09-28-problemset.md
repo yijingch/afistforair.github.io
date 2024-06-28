@@ -37,8 +37,7 @@ then I walk. So let’s be honest,
 I never cared about literature but my life  
 is different. In my life I dare to search a pattern—  
 scale-free, i.e., it can repeat itself  
-endlessly, my brilliant friend according to the length of edge and the law of reproduction please  
-find:  
+endlessly, my brilliant friend according to the length of edge and the law of reproduction please find:  
 fractal dimension. My brilliant friend however does not  
 understand what an end means; and it’s exactly why they differ from literature and all my friendship.  
 My precious. My toy of void. To be born is  
