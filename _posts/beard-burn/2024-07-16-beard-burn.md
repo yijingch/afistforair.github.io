@@ -1,5 +1,5 @@
 ---
-title: Beard burn
+title: Beard Burn
 date: 2024-07-16 22:56:00 +02:00
 tags: [diary]
 ---
